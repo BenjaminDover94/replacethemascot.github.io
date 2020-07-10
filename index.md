@@ -2,7 +2,7 @@
 
 Dear President Barnett, Principal McFadden, Assistant Principal Dooley, Assistant Principal Panepresso, and other [Archbishop Ryan](https://www.archbishopryan.com/) faculty:
 
-We, the students, alumni, and other community members and allies, call for the removal and replacement of the "Raider" mascot. [This mascot image](https://1.cdn.edl.io/iCCxkCNHxS6EE7j1IwPFLMhZuyRbkHJPTOU5VjnrzyLd2lrY.jpg) depicts and stereotypes Indigenous peoples as brutal and violent. Images, like the logo of an Indigenous person or the masks students wear to impersonate Indigenous people, are damagingly **racist**. After centuries of stereotypes, genocide, and erasure throughout the United States' history, it is past time to replace racist mascots like Archbishop Ryan's.
+We, the students, alumni, and other community members and allies, call for the removal and replacement of the "Raider" mascot. [This mascot image](https://1.cdn.edl.io/iCCxkCNHxS6EE7j1IwPFLMhZuyRbkHJPTOU5VjnrzyLd2lrY.jpg) depicts and stereotypes Indigenous peoples as brutal and violent. Images, like the logo of an Indigenous person or the masks students wear to impersonate Indigenous people, are damagingly racist. After centuries of stereotypes, genocide, and erasure throughout the United States' history, it is past time to replace racist mascots like Archbishop Ryan's.
 
 As an organization receiving taxpayer subsidies, it is unacceptable to see this racism amplified and represented by the school. We request the immediate replacement of this mascot, especially in light of [Archbishop Ryan's recent government aid to alleviate COVID-19 pandemic challenges](https://www.inquirer.com/business/ppp-loans-philadelphia-new-jersey-pennsylvania-20200706.html).
 <hr />
