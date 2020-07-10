@@ -39,6 +39,7 @@ Jessica Porretta, '14
 Laura Naylor, '14  
 Brooke Doyle, '14  
 Danielle Woelpper, 14  
+Taylor Mertz, '15  
 
 
 
