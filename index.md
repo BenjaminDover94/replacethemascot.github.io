@@ -34,6 +34,8 @@ Brianna Russo, '14
 Keara Healy, '14  
 Isabella Montalvo, '14  
 Jess Schell, '14  
+Emily McConomy, '14  
+Jessica Porretta, '14  
 
 
 ### Faculty, staff, and former faculty/staff
@@ -44,3 +46,7 @@ Jordi Rivera Prince
 Daron Mulligan  
 Stephanie David  
 Natalie Newcamp  
+Jace McConomy  
+Daniel Heim  
+Jovan Ellis  
+
