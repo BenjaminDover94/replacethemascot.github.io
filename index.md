@@ -22,8 +22,8 @@ The petition was last updated at 3:20 PM on July 10, 2020.
 ### Current Students
 
 ### Alumni
-Daniel Turner | '14 
-Sarah Murray | '14
+Daniel Turner, '14 ||
+Sarah Murray, '14 ||
 
 ### Faculty, staff, and former faculty/staff
 <br>
