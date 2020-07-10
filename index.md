@@ -10,9 +10,9 @@ As an organization receiving taxpayer subsidies, it is unacceptable to see this 
 **If you would like to sign the petition, please fill out [this form](https://docs.google.com/forms/d/e/1FAIpQLSeJuW1oEBvRbSY-VdFCKm9EoAP3ZEk8Y80WHcc_-jFJK1ZXRA/viewform?usp=sf_link).** This petition is inclusive to those within and outside the Archbishop Ryan community. Also, if you would like to email individual administrators directly asking for the mascot's removal, their emails can be found [here](https://www.archbishopryan.com/apps/staff/).
 
 <br>
-This petition has **32** total signatures, encompassing **21** alumni signatories.
+This petition has **33** total signatures, encompassing **21** alumni signatories.
 
-The petition was last updated at 7:22 PM on July 10, 2020.
+The petition was last updated at 7:52 PM on July 10, 2020.
 
 <hr />
 # Signatures
@@ -62,6 +62,7 @@ Jovan Ellis
 Gaelen McCartney  
 Andrew Drake  
 Kira Trak  
-Elizeth Cinto Mejia
+Elizeth Cinto Mejia  
+C McGrory
 
 
