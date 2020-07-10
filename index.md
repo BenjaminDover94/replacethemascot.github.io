@@ -12,7 +12,7 @@ As an organization receiving taxpayer subsidies, it is unacceptable to see this 
 <br>
 This petition has **11** total signatures, encompassing **10** alumni signatories.
 
-The petition was last updated at 5:17 PM on July 10, 2020.
+The petition was last updated at 5:18 PM on July 10, 2020.
 
 <hr />
 # Signatures
@@ -39,3 +39,5 @@ Keara Healy, '14
 <hr />
 ## Other community members/allies  
 Jordi Rivera Prince  
+Daron Mulligan  
+
