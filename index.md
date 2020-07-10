@@ -26,12 +26,12 @@ Daniel Turner, '14
 Sarah Murray, '14  
 Leah Murray, '14  
 Elena Varela, '14  
-Conor McDonald, 14
-Danielle Kaluza, '13
-Isabella Montalvo, '14
-Suzanne Garnett, '14
-Brianna Russo, '14
-Keara Healy, '14
+Conor McDonald, 14  
+Danielle Kaluza, '13  
+Isabella Montalvo, '14  
+Suzanne Garnett, '14  
+Brianna Russo, '14  
+Keara Healy, '14  
 
 
 ### Faculty, staff, and former faculty/staff
