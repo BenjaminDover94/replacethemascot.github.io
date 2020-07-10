@@ -41,7 +41,7 @@ Brooke Doyle, '14
 Danielle Woelpper, 14  
 Taylor Mertz, '15  
 Julie Peterson, '13  
-Nicole Tiernan, '14
+Nicole Tiernan, '14  
 Melissa Schweizer, '14
 
 
