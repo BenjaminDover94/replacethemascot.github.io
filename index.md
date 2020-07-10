@@ -24,6 +24,8 @@ The petition was last updated at 3:20 PM on July 10, 2020.
 ### Alumni
 Daniel Turner, '14  
 Sarah Murray, '14  
+Leah Murray, '14  
+Elena Varela, '14
 
 
 ### Faculty, staff, and former faculty/staff
