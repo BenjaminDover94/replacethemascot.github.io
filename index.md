@@ -11,7 +11,7 @@ As an organization receiving taxpayer subsidies, it is unacceptable to see this 
 <br>
 This petition has **1** total signature, encompassing **1** alumni signatory.
 
-The petition was last updated at 3:20 XM on July 10, 2020.
+The petition was last updated at 3:20 PM on July 10, 2020.
 
 <br>
 <hr />
