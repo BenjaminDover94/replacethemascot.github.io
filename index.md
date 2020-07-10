@@ -10,9 +10,9 @@ As an organization receiving taxpayer subsidies, it is unacceptable to see this 
 **If you would like to sign the petition, please fill out [this form](https://docs.google.com/forms/d/e/1FAIpQLSeJuW1oEBvRbSY-VdFCKm9EoAP3ZEk8Y80WHcc_-jFJK1ZXRA/viewform?usp=sf_link).** This petition is inclusive to those within and outside the Archbishop Ryan community. Also, if you would like to email individual administrators directly asking for the mascot's removal, their emails can be found [here](https://www.archbishopryan.com/apps/staff/).
 
 <br>
-This petition has **4** total signature, encompassing **4** alumni signatory.
+This petition has **5** total signature, encompassing **5** alumni signatory.
 
-The petition was last updated at 3:58 PM on July 10, 2020.
+The petition was last updated at 4:15 PM on July 10, 2020.
 
 <hr />
 # Signatures
@@ -25,7 +25,8 @@ The petition was last updated at 3:58 PM on July 10, 2020.
 Daniel Turner, '14  
 Sarah Murray, '14  
 Leah Murray, '14  
-Elena Varela, '14
+Elena Varela, '14  
+Conor McDonald, 14
 
 
 ### Faculty, staff, and former faculty/staff
