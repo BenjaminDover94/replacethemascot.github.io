@@ -11,7 +11,7 @@ As an organization receiving taxpayer subsidies, it is unacceptable to see this 
 <br>
 This petition has **1** total signature, encompassing **1** alumni signatories.
 
-The petition was last updated at XX:XX XM on July 10, 2020.
+The petition was last updated at 3:20 XM on July 10, 2020.
 
 <br>
 <hr />
@@ -20,7 +20,7 @@ The petition was last updated at XX:XX XM on July 10, 2020.
 ### Current Students
 
 ### Alumni
-Daniel Turner | 2018
+Daniel Turner, '18
 
 ### Faculty, staff, and former faculty/staff
 <br>
