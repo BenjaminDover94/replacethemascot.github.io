@@ -10,7 +10,7 @@ As an organization receiving taxpayer subsidies, it is unacceptable to see this 
 **If you would like to sign the petition, please fill out [this form](https://docs.google.com/forms/d/e/1FAIpQLSeJuW1oEBvRbSY-VdFCKm9EoAP3ZEk8Y80WHcc_-jFJK1ZXRA/viewform?usp=sf_link).** This petition is inclusive to those within and outside the Archbishop Ryan community. Also, if you would like to email individual administrators directly asking for the mascot's removal, their emails can be found [here](https://www.archbishopryan.com/apps/staff/). In order to respect the status of current students, we are asking only alumni and community allies over the age of eighteen years old to sign.
 
 <br>
-This petition has **53** total signatures, encompassing **38** alumni signatories.
+This petition has **65** total signatures, encompassing **47** alumni signatories.
 
 The petition was last updated at 11:28 PM on July 10, 2020.
 
@@ -59,12 +59,28 @@ Veronica Harding, '16
 Amber Stone, '13  
 Candice Suder, '12  
 Dennis Fiorentino, '16
+James Jesberger, '12  
+Thomas Keenan, '14  
+Eric Coffield, '14  
+Amanda Simone, '14
+Kayla Smith, '17  
+Kel-Lisa Sebwe, '16  
+Amanda Thompson, '16  
+Alexandria Freedman, '15  
+Joseph Schell, '12  
+
+
 
 
 
 ### Faculty, staff, and former faculty/staff
 <br>
 <hr />
+
+### Parent/Guardian of a current or former student
+Stephabie Coombs
+<br>
+
 ## Other community members/allies  
 Jordi Rivera Prince  
 Daron Mulligan  
@@ -80,5 +96,5 @@ Elizeth Cinto Mejia
 C McGrory  
 Grace Bridy  
 Siani Colon  
-
-
+Melissa Zatarain  
+Brezaja Hutcheson  
