@@ -48,7 +48,6 @@ Anna Magnani, '14
 Alison Hopkins, '16  
 Rose Hopkins, '81  
 Amber Doyle, '14  
-Jack Mehoff, '16  
 Ashleigh Hughes, '14  
 Sharnita Midgett, '13  
 Jeremy Konopka-White, '10  
