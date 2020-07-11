@@ -19,8 +19,6 @@ The petition was last updated at 11:28 PM on July 10, 2020.
 
 ## Archbishop Ryan Community
 
-### Current Students
-
 ### Alumni
 Daniel Turner, '14  
 Sarah Murray, '14  
