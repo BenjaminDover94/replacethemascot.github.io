@@ -58,7 +58,7 @@ Angelique Nelson, '14
 Veronica Harding, '16  
 Amber Stone, '13  
 Candice Suder, '12  
-Dennis Fiorentino, '16
+Dennis Fiorentino, '16  
 James Jesberger, '12  
 Thomas Keenan, '14  
 Eric Coffield, '14  
