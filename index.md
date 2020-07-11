@@ -10,9 +10,9 @@ As an organization receiving taxpayer subsidies, it is unacceptable to see this 
 **If you would like to sign the petition, please fill out [this form](https://docs.google.com/forms/d/e/1FAIpQLSeJuW1oEBvRbSY-VdFCKm9EoAP3ZEk8Y80WHcc_-jFJK1ZXRA/viewform?usp=sf_link).** This petition is inclusive to those within and outside the Archbishop Ryan community. Also, if you would like to email individual administrators directly asking for the mascot's removal, their emails can be found [here](https://www.archbishopryan.com/apps/staff/). In order to respect the status of current students, we are asking only alumni and community allies over the age of eighteen years old to sign.
 
 <br>
-This petition has **65** total signatures, encompassing **47** alumni signatories.
+This petition has **104** total signatures, encompassing **80** alumni signatories.
 
-The petition was last updated at 7:55 AM on July 11, 2020.
+The petition was last updated at 2:45 PM EDT on July 11, 2020.
 
 <hr />
 # Signatures
@@ -68,7 +68,39 @@ Amanda Thompson, '16
 Alexandria Freedman, '15  
 Joseph Schell, '12  
 Bryana Cendrowski, '15  
-
+Caitlyn Logue, '14
+Samantha Hicks, '15  
+Harley Yabor, '13  
+Rachel Wojtkielewicz, '15  
+Olivia Iannucci	‘18
+Matt Gallagher, '16  
+Kristi Birnbaum, '16  
+Kayla Micucci	‘15
+Sofia Domingot, '17  
+Valerie	McIntyre, '13  
+Kate Coppola, '14  
+Rachel Azzolina, '15  
+Chris DePascale, '14  
+Samantha Wheeler, '12  
+Nicholas Sweeney, '15  
+Adam Somma, '12  
+Kevin Clancy, '12  
+Gary Spreckley, '17  
+Kathleen McCauley, '17  
+Alyssa Kuryluk, '17  
+Nick Harvey, '13  
+Rachel Harvey, '11  
+Nicolina DiMascia, '14
+Rachel Stark, '13  
+Katherine Wible, '13  
+Justin Breen, '10  
+Tania Bobby, '15  
+Daniel Quedenfeld	‘16
+Dan Callahan, '09  
+Michaella Miles, '17  
+Ryan Urban, '14  
+Katie Ewing, '14  
+Kyle Norton, '08  
 
 
 
@@ -98,3 +130,9 @@ Grace Bridy
 Siani Colon  
 Melissa Zatarain  
 Brezaja Hutcheson  
+Ellyn Rozell  
+Rebecca Rosenblatt  
+Alexandra Rose  
+Rachel Crowley  
+Lindsey Cassano  
+Jessica Quesenberry  
