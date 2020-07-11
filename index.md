@@ -52,10 +52,10 @@ Rose Hopkins, '81
 Amber Doyle, '14  
 Jack Mehoff, '16  
 Ashleigh Hughes, '14  
-Sharnita Midgett, '13
-Jeremy Konopka-White, '10
-Madison Lyons, '14
-Richard Cabrera, '12
+Sharnita Midgett, '13  
+Jeremy Konopka-White, '10  
+Madison Lyons, '14  
+Richard Cabrera, '12  
 
 
 
