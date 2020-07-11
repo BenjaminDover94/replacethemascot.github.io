@@ -10,9 +10,9 @@ As an organization receiving taxpayer subsidies, it is unacceptable to see this 
 **If you would like to sign the petition, please fill out [this form](https://docs.google.com/forms/d/e/1FAIpQLSeJuW1oEBvRbSY-VdFCKm9EoAP3ZEk8Y80WHcc_-jFJK1ZXRA/viewform?usp=sf_link).** This petition is inclusive to those within and outside the Archbishop Ryan community. Also, if you would like to email individual administrators directly asking for the mascot's removal, their emails can be found [here](https://www.archbishopryan.com/apps/staff/). In order to respect the status of current students, we are asking only alumni and community allies over the age of eighteen years old to sign.
 
 <br>
-This petition has **114** total signatures, encompassing **88** alumni signatories.
+This petition has **146** total signatures, encompassing **113** alumni signatories.
 
-The petition was last updated at 3:00 PM EDT on July 11, 2020.
+The petition was last updated at 7:30 PM EDT on July 11, 2020.
 
 <hr />
 # Signatures
@@ -107,8 +107,32 @@ Nolen Kelly, '18
 Nick Perri, '20  
 Alexandria DuBeck, '14  
 Emily Corbett, '18  
-Karen Dees-Ewing, '83   
-
+Karen Dees-Ewing, '83  
+Shannon	Conway, '13  
+Kaitlyn	Milgrom	‘15  
+Nicole	Nitowski, '14  
+Melissa	Bellerjeau, '15  
+Madison	Morales, '17  
+Shealyn	Kilroy, '13  
+John Lee, '12  
+Timothy Sees Jr., '18  
+Kassandra Castillo, '14  
+Nicholas Roche, '13  
+Evan Kloepfer, '14  
+Ashley Ferrara, '16  
+Kristin Schwartz Korbel, '83  
+Amber Boothman, '14  
+Lindsay Dress, '17  
+Annette	Rama, '17  
+Robert Check, '17  
+Sarah Benson, '17  
+Kathleen Salinel, '13  
+Violet Siwek, '14  
+Joseph DiMascia, '17  
+Gianna Ross, '11  
+Erica Suarez ‘14  
+Marissa	Aguado, '14  
+Jacqueline Bruno, '13  
 
 
 ### Faculty, staff, and former faculty/staff
@@ -116,7 +140,8 @@ Karen Dees-Ewing, '83
 <hr />
 
 ### Parent/Guardian of a current or former student
-Stephabie Coombs
+Stephabie Coombs  
+Ronald	Schwartz  
 <br>
 
 ## Other community members/allies  
@@ -143,5 +168,12 @@ Rachel Crowley
 Lindsey Cassano  
 Jessica Quesenberry  
 Marie	Carlson  
-Cassie	Jimmink   
-Nyla 	Williams   
+Cassie Jimmink   
+Nyla Williams  
+Gina Palumbo  
+Gabrielle	O’Brien  
+Sydney Curtis  
+Ashley Elle  
+Chelsea Cimino  
+Grace Reilly  
+
