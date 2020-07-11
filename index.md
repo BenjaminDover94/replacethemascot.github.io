@@ -59,6 +59,7 @@ Richard Cabrera, '12
 Angelique Nelson, '14  
 Veronica Harding, '16  
 Amber Stone, '13  
+Candice Suder, '12  
 
 
 
