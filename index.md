@@ -61,7 +61,7 @@ Dennis Fiorentino, '16
 James Jesberger, '12  
 Thomas Keenan, '14  
 Eric Coffield, '14  
-Amanda Simone, '14
+Amanda Simone, '14  
 Kayla Smith, '17  
 Kel-Lisa Sebwe, '16  
 Amanda Thompson, '16  
