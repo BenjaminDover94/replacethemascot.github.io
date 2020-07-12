@@ -150,11 +150,11 @@ Fred Zeidler, '74
 Brian Hamil, '92  
 Matthew Brady, '14  
 Devon	Dougherty, '14  
-Sam	Cummins, '14 
-Alec Fiorentino, '12 
-Brendan	Bradley, '11
-Allison	McCann, '15
-Brendan Duffy, '10
+Sam	Cummins, '14  
+Alec Fiorentino, '12  
+Brendan	Bradley, '11  
+Allison	McCann, '15  
+Brendan Duffy, '10  
 
 ### Faculty, staff, and former faculty/staff
 <br>
