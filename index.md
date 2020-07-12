@@ -10,9 +10,9 @@ As an organization receiving taxpayer subsidies, it is unacceptable to see this 
 **If you would like to sign the petition, please fill out [this form](https://docs.google.com/forms/d/e/1FAIpQLSeJuW1oEBvRbSY-VdFCKm9EoAP3ZEk8Y80WHcc_-jFJK1ZXRA/viewform?usp=sf_link).** This petition is inclusive to those within and outside the Archbishop Ryan community. Also, if you would like to email individual administrators directly asking for the mascot's removal, their emails can be found [here](https://www.archbishopryan.com/apps/staff/). In order to respect the status of current students, we are asking only alumni and community allies over the age of eighteen years old to sign.
 
 <br>
-This petition has **146** total signatures, encompassing **113** alumni signatories.
+This petition has **187** total signatures, encompassing **130** alumni signatories.
 
-The petition was last updated at 7:30 PM EDT on July 11, 2020.
+The petition was last updated at 10:20 PM EDT on July 11, 2020.
 
 <hr />
 # Signatures
@@ -123,8 +123,7 @@ Ashley Ferrara, '16
 Kristin Schwartz Korbel, '83  
 Amber Boothman, '14  
 Lindsay Dress, '17  
-Annette	Rama, '17  
-Robert Check, '17  
+Annette	Rama, '17   
 Sarah Benson, '17  
 Kathleen Salinel, '13  
 Violet Siwek, '14  
@@ -133,6 +132,23 @@ Gianna Ross, '11
 Erica Suarez ‘14  
 Marissa	Aguado, '14  
 Jacqueline Bruno, '13  
+Luke Breslin, '17  
+Alexa Donlon, '17  
+Crystal Soriano, '15  
+Salina Peterkin, '15  
+Andrew Hannigan, '09  
+Edyta Switaj, '14  
+Brynn Baranosky, '14  
+Kyle Douglass, '13  
+Amanda Suarez, '12  
+Sean Mettee, '13  
+Aleksandra Koch, '18  
+Kennedy Kegler, '15  
+Nichola McDermott, '17  
+Alexandra Abramson, '14  
+Fred Zeidler, '74  
+Brian Hamil, '92  
+Matthew Brady, '14  
 
 
 ### Faculty, staff, and former faculty/staff
@@ -140,7 +156,7 @@ Jacqueline Bruno, '13
 <hr />
 
 ### Parent/Guardian of a current or former student
-Stephabie Coombs  
+Stephanie Coombs  
 Ronald	Schwartz  
 <br>
 
@@ -176,4 +192,9 @@ Sydney Curtis
 Ashley Elle  
 Chelsea Cimino  
 Grace Reilly  
-
+Cassandra Davis  
+Lucas McDaniel  
+Will Brander  
+Sarah	Johnson  
+Shane Duffner  
+Nick Haller  
