@@ -162,6 +162,8 @@ Steve Buchinsky, '17
 Martina Dundovic, '15  
 Kevin Clifton, '12  
 Lorette Thomas, '17  
+Kelsey Sebwe, '20  
+
 
 
 ### Faculty, staff, and former faculty/staff
