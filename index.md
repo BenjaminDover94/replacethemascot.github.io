@@ -12,7 +12,7 @@ As an organization receiving taxpayer subsidies, it is unacceptable to see this 
 <br>
 This petition has **211** total signatures, including **160** alumni signatories.
 
-The petition was last updated at 5:19 PM EDT on July 12, 2020.
+The petition was last updated at 7:35 PM EDT on July 12, 2020.
 
 <hr />
 # Signatures
@@ -182,6 +182,8 @@ Christina	Bidzilya, '14
 MaryKate Donahue, '16  
 Nicole Suwala, '14  
 Kelly A. Mcmonagle Murray, '79  
+Thomas Dott, '15  
+John Michael Conway, '12  
 
 
 
