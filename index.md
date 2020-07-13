@@ -184,6 +184,7 @@ Kyra	Mood, '17
 Shannon	Meehan, '11  
 Keira	Farnan, '15  
 Shayna	Rodriguez, '15  
+Maria Meneses, '11  
 
 
 
@@ -252,4 +253,6 @@ Colin	Hanuscin
 Fran Hennessey  
 MaryAnn	Thackrah  
 Patrick	Graf  
+Monique	Johnson  
+Michelle	White  
 
