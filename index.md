@@ -10,7 +10,7 @@ As an organization receiving taxpayer subsidies, it is unacceptable to see this 
 **If you would like to sign the petition, please fill out [this form](https://docs.google.com/forms/d/e/1FAIpQLSeJuW1oEBvRbSY-VdFCKm9EoAP3ZEk8Y80WHcc_-jFJK1ZXRA/viewform?usp=sf_link).** This petition is inclusive to those within and outside the Archbishop Ryan community. Also, if you would like to email individual administrators directly asking for the mascot's removal, their emails can be found [here](https://www.archbishopryan.com/apps/staff/). In order to respect the status of current students, we are asking only alumni and community allies over the age of eighteen years old to sign. _If you believe your name was written in error, please submit a form with comment to fix the error!_
 
 <br>
-This petition has **214** total signatures, including **163** alumni signatories.
+This petition has **213** total signatures, including **162** alumni signatories.
 
 The petition was last updated at 10:18 PM EDT on July 12, 2020.
 
@@ -159,7 +159,6 @@ Martina Dundovic, '15
 Kevin Clifton, '12  
 Lorette Thomas, '17  
 Kelsey Sebwe, '20  
-Matt Clifton, '14  
 Andrew Clark, '14  
 Sarah Mooney, '16  
 Amin Bryant, '19  
@@ -183,6 +182,9 @@ John Michael Conway, '12
 Julia Young, '12  
 Kaitlyn Snock, '13  
 Kyra	Mood, '17  
+Shannon	Meehan, '11  
+Keira	Farnan, '15  
+Shayna	Rodriguez, '15  
 
 
 
