@@ -12,7 +12,7 @@ As an organization receiving taxpayer subsidies, it is unacceptable to see this 
 <br>
 This petition has **240** total signatures, including **181** alumni signatories.
 
-The petition was last updated at 6:23 PM EDT on July 13, 2020.
+The petition was last updated at 12:23 AM EDT on July 14, 2020.
 
 <hr />
 # Signatures
