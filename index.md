@@ -10,9 +10,9 @@ As an organization receiving taxpayer subsidies, it is unacceptable to see this 
 **If you would like to sign the petition, please fill out [this form](https://docs.google.com/forms/d/e/1FAIpQLSeJuW1oEBvRbSY-VdFCKm9EoAP3ZEk8Y80WHcc_-jFJK1ZXRA/viewform?usp=sf_link).** This petition is inclusive to those within and outside the Archbishop Ryan community. Also, if you would like to email individual administrators directly asking for the mascot's removal, their emails can be found [here](https://www.archbishopryan.com/apps/staff/). In order to respect the status of current students, we are asking only alumni and community allies over the age of eighteen years old to sign. _If you believe your name was written in error, please submit a form with comment to fix the error!_
 
 <br>
-This petition has **240** total signatures, including **181** alumni signatories.
+This petition has **243** total signatures, including **182** alumni signatories.
 
-The petition was last updated at 12:23 AM EDT on July 14, 2020.
+The petition was last updated at 12:28 AM EDT on July 14, 2020.
 
 <hr />
 # Signatures
@@ -201,9 +201,7 @@ Caroline	Dickerson, '11
 Alisa Thammavong, '11  
 Alyssa	Sroka, '11  
 Shane	McBride, '19  
-
-
-
+Rebecca	(Forward) Rehl, '09  
 
 
 ### Faculty, staff, and former faculty/staff
