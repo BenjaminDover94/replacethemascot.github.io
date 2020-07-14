@@ -196,6 +196,7 @@ Kristine	Kirchhoff, '10
 Janine Hoffman, '10  
 Christian Lally '11  
 Kathleen	Ferrell '09  
+Winnie Wong, '20  
 
 
 
