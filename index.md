@@ -10,9 +10,9 @@ As an organization receiving taxpayer subsidies, it is unacceptable to see this 
 **If you would like to sign the petition, please fill out [this form](https://docs.google.com/forms/d/e/1FAIpQLSeJuW1oEBvRbSY-VdFCKm9EoAP3ZEk8Y80WHcc_-jFJK1ZXRA/viewform?usp=sf_link).** This petition is inclusive to those within and outside the Archbishop Ryan community. Also, if you would like to email individual administrators directly asking for the mascot's removal, their emails can be found [here](https://www.archbishopryan.com/apps/staff/). In order to respect the status of current students, we are asking only alumni and community allies over the age of eighteen years old to sign. _If you believe your name was written in error, please submit a form with comment to fix the error!_
 
 <br>
-This petition has **254** total signatures, including **190** alumni signatories.
+This petition has **285** total signatures, including **208** alumni signatories.
 
-The petition was last updated at 8:38 AM EDT on July 14, 2020.
+The petition was last updated at 12:30 AM EDT on July 15, 2020.
 
 <hr />
 # Signatures
@@ -204,13 +204,30 @@ Thomas Luecke, '13
 Irina Davila, '14  
 Gabrielle	Moss, '16  
 Marissa	Dwyer, '07  
-Marygrace	Urmson, '16  
+Marygrace	Urmson, '12  
 John Gerlach, '12  
 Diana	Sears, '17  
 Patricia	Hasher, '78  
 Kathryn	Schwartz, '09  
-
-
+Elizabeth Moroz, '16  
+Gabrielle Bamberski, '13  
+Raymond Gallagher, '16  
+Victoria Smith, '16  
+Sean Gaffney, '16  
+Ryan Gaffney, '20  
+Kaitlyn	Tracey, '17  
+Eileen Moroz, '18  
+Casaundra Schwartz DiDomenico, '10  
+Christa	Carpenter, '13	 
+Emily Campbell, '18  
+Jill Bautista, '18  
+Lyndsey Connolly , '18  
+Dominic Costanzo, '13  
+Alyssa Sliwa, '18  
+Sean Krumpe, '16  
+Emma (DiMarcantonio) Brandt, '10  
+Ryan Dadalski, ‘07  
+Matthew	Keller, '18  
 
 
 
@@ -286,3 +303,16 @@ Selena Castro
 Sarah	Brewer  
 Caitlin	Bueller  
 Caitlyn	McCuen  
+Olivia Tierney  
+Lauren Champeau  
+Maddie Leonard  
+Zoila Darton  
+Dolma Sherpa  
+Ajanae Hall  
+Nneso Offor  
+Helen Rosenbrien  
+Krista Hill  
+Adaeze Uwaomah  
+Jessica Kiwiet  
+Colleen	Yeager  
+Alexandra Pitts  
