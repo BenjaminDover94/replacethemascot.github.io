@@ -218,7 +218,7 @@ Ryan Gaffney, '20
 Kaitlyn	Tracey, '17  
 Eileen Moroz, '18  
 Casaundra Schwartz DiDomenico, '10  
-Christa	Carpenter, '13	 
+Christa	Carpenter, '13  	 
 Emily Campbell, '18  
 Jill Bautista, '18  
 Lyndsey Connolly , '18  
