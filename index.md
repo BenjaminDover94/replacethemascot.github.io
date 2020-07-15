@@ -203,6 +203,15 @@ Shane	McBride, '19
 Rebecca	(Forward) Rehl, '09  
 Thomas Luecke, '13  
 Irina Davila, '14  
+Gabrielle	Moss, '16  
+Marissa	Dwyer, '07  
+Marygrace	Urmson, '16  
+John Gerlach, '12  
+Diana	Sears, '17  
+Patricia	Hasher, '78  
+Kathryn	Schwartz, '09  
+
+
 
 
 
@@ -275,4 +284,6 @@ Maria Vietz
 Sean Murray  
 Sharon Ashok  
 Selena Castro  
-
+Sarah	Brewer  
+Caitlin	Bueller  
+Caitlyn	McCuen  
